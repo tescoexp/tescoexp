@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=friends&color=010101)
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=010101)
 
 <br><img src="https://64.media.tumblr.com/e5ad29177fa011cfcd7b6006c4df7e33/bd61ec885a601a03-40/s1280x1920/3a3b4b30f699c19790170d4c973cca366a178a6f.pnj" width="300px">
 
