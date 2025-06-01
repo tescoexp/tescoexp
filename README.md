@@ -11,9 +11,4 @@ very gay unpleasant gachikoi　(๑////๑ )
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=babcc2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&redirect=true) <img src="https://64.media.tumblr.com/06d7546a82ed045cb9c467ff19bf2ae6/3b2e8aa40ebd2cc6-43/s400x600/7aff7bd0dbd6aecbf681f64b6346c92992572350.gifv" width="80px">
 
-⠀⠀⠀⠀⠀⠀⢀⣰⣀⠀⠀⠀⠀⠀⠀⠀⠀
-<br>⢀⣀⠀⠀⠀⢀⣄⠘⠀⠀⣶⡿⣷⣦⣾⣿⣧
-<br>⢺⣾⣶⣦⣰⡟⣿⡇⠀⠀⠻⣧⠀⠛⠀⡘⠏
-<br>⠈⢿⡆⠉⠛⠁⡷⠁⠀⠀⠀⠉⠳⣦⣮⠁⠀
-<br>⠀⠀⠛⢷⣄⣼⠃⠀⠀⠀⠀⠀⠀⠉⠀⠠⡧
-<br>⠀⠀⠀⠀⠉⠋⠀⠀⠀⠠⡥⠄⠀⠀⠀⠀⠀
+i miss my dad
