@@ -13,12 +13,11 @@
 im graduating college soon!!! i took psychology
 and really like 2 yap about it 
 
-ive only been playing forsaken for a few days, i main elliot and taph :D
+imain taph and chance uuhme but im kind of buns at it :D
 
-im very enthusiastic about my comf characters such as **chance**,
-<br>**unpleasant**, **tenna** (dr), **denholm** (it crowd) and **jeff** (clarence) ^.^
+im very enthusiastic about my comf characters such as **mafioso**,
+<br>**unpleasant**, **denholm** (it crowd) and **jeff** (clarence) ^.^
 
-my fav shows right now are bbc ghosts, clarence and the it crowd :3
-<br>im gonna make a detailed intrests rentry soon i pinky promise
+rentry and github refurbish on hold
 
 <br><img src="https://64.media.tumblr.com/0ca06af9f132c8d4c3dd13cf4f4e4e6f/89d0eecdcc86b9be-3b/s1280x1920/dc98d155ced7b54d8635d081438f7dd681be6525.pnj" width="250px">
