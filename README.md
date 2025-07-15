@@ -8,15 +8,7 @@
 
 <br><a href="https://rentry.co/splitego"><img src="https://64.media.tumblr.com/857443b185496a84657825c0ad7b4f7f/8b671602d24bb9e7-6f/s500x750/9154594eb5e2f6938ac3eb31fafee1e87f409752.pnj" height="40"/><a href="https://chanceyaoi.atabook.org/"><img src="https://64.media.tumblr.com/8732f23734de54d1802d07831add626b/8b671602d24bb9e7-ae/s500x750/66ce5986eb5761156191cfea19a4d55552952eab.pnj" height="40"/><a href="https://discordapp.com/users/610227726699200513"><img src="https://64.media.tumblr.com/6e94fe15a453176415b27d7028b9bab5/8b671602d24bb9e7-03/s500x750/eee242dda9c4fd52578ebc117536070daea26518.pnj" height="40"/>
 
-<br>**some stuff ab me 0_0**
-
-im graduating college soon!!! i took psychology
-and really like 2 yap about it 
-
-imain taph and chance uuhme but im kind of buns at it :D
-
-im very enthusiastic about my comf characters such as **mafioso**,
-<br>**unpleasant**, **denholm** (it crowd) and **jeff** (clarence) ^.^
+<br>I LVOVE GASHARPOON AAUUAHJHW UUUAHJ AAUWYGGHHGKSDKKG
 
 rentry and github refurbish on hold
 
