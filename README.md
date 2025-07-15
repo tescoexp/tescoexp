@@ -1,9 +1,11 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=c02a2e)
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=000000)
 
-<br>hi i had a big month long dissociation episode imback now though hawhbaivouj alabhsd,n , dblhj .
+<br>had a month long dissociation episode
+<br>im back now or whatever i dont kn ow
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=3444da&interchange=true&bar_color=5e3dff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-<br><a href="https://rentry.co/splitego"><img src="https://64.media.tumblr.com/857443b185496a84657825c0ad7b4f7f/8b671602d24bb9e7-6f/s500x750/9154594eb5e2f6938ac3eb31fafee1e87f409752.pnj" height="40"/><a href="https://chanceyaoi.atabook.org/"><img src="https://64.media.tumblr.com/8732f23734de54d1802d07831add626b/8b671602d24bb9e7-ae/s500x750/66ce5986eb5761156191cfea19a4d55552952eab.pnj" height="40"/><a href="https://discordapp.com/users/610227726699200513"><img src="https://64.media.tumblr.com/6e94fe15a453176415b27d7028b9bab5/8b671602d24bb9e7-03/s500x750/eee242dda9c4fd52578ebc117536070daea26518.pnj" height="40"/>
 
+<br><a href="https://rentry.co/splitego"><img src="https://64.media.tumblr.com/4ed0d5fb56ae43119bfbf90d04df898e/891b3ce5ff305b33-3a/s400x600/9cb574f77ebbc67afcf27eb4430b10b7ae9dc92f.pnj" height="40"/><a href="https://chanceyaoi.atabook.org/"><img src="https://64.media.tumblr.com/7c2b604394b09b03218f538ebc3dd09c/891b3ce5ff305b33-d6/s400x600/ae496fcd5759fe2ac3056dbcf91a8d49376fa360.pnj" height="40"/><a href="https://discordapp.com/users/610227726699200513"><img src="https://64.media.tumblr.com/07c232e78d14300b1e569228a8358e19/891b3ce5ff305b33-11/s400x600/074047ae021695a4c7781a2f4fb9b6217f71a24e.pnj" height="40"/>
+
+<br>**no.1 gasharpoon fan i love gasharpoon so much**
