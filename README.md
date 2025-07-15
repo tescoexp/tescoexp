@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=c02a2e)
 
-<img src="https://64.media.tumblr.com/bbcc0d128c41cca4d1c29b7ac0eab301/56f560266b046402-77/s1280x1920/5da49ff8beccfb1e12939ad2514bfddee99f1337.pnj" width="220px">
+<br>hi i had a big dissociation relapse imback now though hawhbaivouj alabhsd,n , dblhj .
 
 <br><img src="https://64.media.tumblr.com/2802b88fd728c78f8b182da4363e405e/03f780e4ba41457b-42/s100x200/b9849c022becfe8a6a2d9f2f82ed203efa8a1d11.gifv" width="65px"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=3444da&interchange=true&bar_color=5e3dff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://64.media.tumblr.com/06d7546a82ed045cb9c467ff19bf2ae6/3b2e8aa40ebd2cc6-43/s400x600/7aff7bd0dbd6aecbf681f64b6346c92992572350.gifv" width="63px">
 
