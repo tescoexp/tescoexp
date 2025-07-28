@@ -7,4 +7,4 @@
 <br>feel free to sign my ata even if youre just passing by yay yay
 <br>**number 1 gasharpoon fan in the world**!!!!
 
-<br>( ˶°ㅁ°) huge mafioso, john doe, itrapped unpleasant comf
+<br>huge mafioso, john doe, itrapped & unpleasant comf
