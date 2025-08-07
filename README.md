@@ -7,5 +7,3 @@
 
 <br>**BIGGEST GASHARPOON FAN IN THE WHOLE WORLD**
 
-<br>**daughterdebt plspls**
-
