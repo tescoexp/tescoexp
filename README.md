@@ -2,7 +2,7 @@
 
  <br>![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=studs&color=000000) <img src="https://64.media.tumblr.com/2c894944273552ec7b527c969e9c64d0/22446b416299184a-c8/s75x75_c1/297b3a07366c0695c7131feefb7992a60a175714.gifv">
 
-<div><img src="https://64.media.tumblr.com/788ac6266c78df1e5a7751bc7084bc2b/4160be3cc2b84620-c7/s250x400/4a07a79cfeec93da7db5823ae736738d6cadf31b.gifv" width="250"></div>
+
 
 <div>gettinnn remade! perhapes!</div>
 pretdy busy with College, so sorrey!! c(^>
