@@ -9,6 +9,6 @@
 pretdy busy with College, so sorrey!! c(^>
 
 
-<br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=d90d0d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<br>[![Discord Presence](https://lanyard.cnrad.dev/api/610227726699200513?theme=dark&idleMessage=Hey%20Boss!!%20It's%20Me!!%EF%BC%88%CB%B6%E2%80%B2%E2%97%A1%E2%80%B5%CB%B6%EF%BC%89&bg=000000)](https://discord.com/users/610227726699200513)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=d90d0d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
