@@ -9,6 +9,6 @@
 pretdy busy with College, so sorrey!! c(^>
 
 
-<br>[![Discord Presence](https://lanyard.kyrie25.dev/api/743981663553323080?gradient=ffffff-0d0301&idleMessage=TTYL!%20%3C3&hideNameplate=true&animatedDecoration=true&theme=dark&showBanner=true&bannerFilter=brightness(.30)&waveColor=0d0301&waveSpotifyColor=0d0301)](https://discord.com/users/610227726699200513) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=d90d0d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<br>[![Discord Presence](https://lanyard.kyrie25.dev/api/610227726699200513?gradient=ffffff-0d0301&idleMessage=TTYL!%20%3C3&hideNameplate=true&animatedDecoration=true&theme=dark&showBanner=true&bannerFilter=brightness(.30)&waveColor=0d0301&waveSpotifyColor=0d0301)](https://discord.com/users/610227726699200513) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=d90d0d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
