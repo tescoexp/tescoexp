@@ -6,8 +6,8 @@
 
 
 
-<div>gettinnn remade! perhapes!</div>
-pretdy busy with College, so sorrey!! c(^>
+<div>i will make a nice read.me for muself</div>
+one day. ok.
 
 
 <br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=d90d0d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
