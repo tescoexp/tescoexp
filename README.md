@@ -6,9 +6,8 @@
 
 
 
-<div>i will make a nice read.me for muself</div>
-one day. ok.
-
+<div>it aint like i aint used</div>
+to going on without you
 
 <br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=d90d0d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <div><a href="https://open.spotify.com/playlist/0B1tQZgMrKyxvDTuKXS7Td?si=p3AC1pu5Svi8jjCn-ux-Kw"><img src="https://64.media.tumblr.com/adeac5b866f30730eb3baa3b99e24dfd/dc7f30f1aa82a5e1-d3/s1280x1920/93f1a5b54ba7b09e65efe87315030d9b984f15d5.gifv" width="170px"></div>
