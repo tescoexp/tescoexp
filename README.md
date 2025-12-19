@@ -9,14 +9,14 @@
 
  
 <div align="center">
-<details>
-<summary>^ ^</summary>
-</details>
-  
-c & h okay and encouraged, @everypony
+haii
+caall me tesco (usually) or tess or pony :^3
+ 
+(or ask who front is)
+ 
+c & h okay and **enc**ouraged, @everypony
 
-<br>idm people taking heavy inspiration from my skins
-<br>except friends, friends pls dont do this at all
+CURRENTLY obsessed with PIG and superstore ^.^
 
 <br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>⠀
