@@ -11,8 +11,7 @@
 <div align="center">
 haii
 caall me tesco (usually) or tess or pony :^3
- 
-(or ask who front is)
+<br>friends feel free to ask who i currently am
  
 c & h okay and **enc**ouraged, @everypony
 
