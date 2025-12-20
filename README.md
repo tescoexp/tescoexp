@@ -16,12 +16,23 @@ caall me tesco (usually) or tess or pony :^3
  
 c & h okay and **enc**ouraged, @everypony
 
-CURRENTLY obsessed with PIG and superstore ^.^
+CURRENTLY obsessed with PIG, dr who and superstore ^.^
 
-I PROMISE ICAN MAKE READ.MEs i just dont wanna
 
 <br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>⠀
 #
 
-work in progress, im very lazy
+<details>
+<summary>${\textsf{\color{#fffff}boundaries}}$</summary>
+<div align="left">
+hi, strict dni:
+ <br>generally bad bigoted people
+ <br>endogenic/willogenic system supporters
+ <br>people that call pedophiles 'maps'
+ <br>if you copy me/parts of myself or my system in any way
+ <br>it isnt charming at all, it offends me and is just weird.
+ <br>if you try to diagnose yourself with things like personality disorders or DID
+ <br>or act like you have them just because you observe me having them. (why has this
+ <br>happened multiple times)
+</details>
