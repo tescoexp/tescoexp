@@ -26,8 +26,7 @@ hi! strict dni:
  <br>- if you copy me/parts of myself or my system in any way
  <br>it isnt charming at all, it offends me and is just weird!
  
- really, please dont copy my skins/persona or take any inspo if we are friends. i do not want to see you
- <br>trying to be me 😁😁😁
- <br>anyone may copy code directly from my rentry or github 
+ really, please dont copy my skins/persona or take any inspo from ME AS WHOLE if we are friends. 
+ <br>i do not want to see you trying to be me 😁😁😁
 
 </details>
