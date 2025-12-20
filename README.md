@@ -18,21 +18,16 @@ work in progressmaybe idk
 <details>
 <summary>${\textsf{\color{#fffff}boundaries}}$</summary>
 <div align="left">
-hi, strict dni:
+hi! strict dni:
  <br>- generally bad bigoted people
- <br>- endogenic/willogenic system supporters
+ <br>- endogenic/willogenic system supporters, however people that think they are endo/willo themselves are misinformed and i'll gladly educate them
  <br>- people that call pedophiles 'maps'
  
  <br>- if you copy me/parts of myself or my system in any way
- <br>it isnt charming at all, it offends me and is just weird.
+ <br>it isnt charming at all, it offends me and is just weird!
  
- <br>- if you try to diagnose yourself with things like personality disorders or DID
- <br>or pretend to have them after becoming friends with me (why has this
- <br>happened multiple times)
-
- <br>additionally, please dont copy my skins if we are friends. i do not want to see you
+ really, please dont copy my skins/persona or take any inspo if we are friends. i do not want to see you
  <br>trying to be me 😁😁😁
+ <br>anyone may copy code directly from my rentry or github 
 
- i'm generally very confrontational, please do not fuck around with these topics as
- <br>i will not take any shit about it!
 </details>
