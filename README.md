@@ -20,6 +20,7 @@ work in progressmaybe idk
 <div align="left">
 hi! strict dni:
  <br>- generally bad bigoted people
+ <br>- fickin/irl/therian haters
  <br>- endogenic/willogenic system supporters, however people that think they are endo/willo themselves are misinformed and i'll gladly educate them
  <br>- people that call pedophiles 'maps'
  
