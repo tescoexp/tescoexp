@@ -7,25 +7,25 @@
 <div align="right">
 <div>
 
- 
-<div align="center">
-work in progressmaybe idk....
 
-<br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-<br>⠀
-#
+<div align="left">
+<details>
+<summary>hii about me</summary>
+
+helloo pls call me station atm
+ <br>i love my friends and watching shows, currently rewatching dr who :^D
+ <br>i am an alternate and i like to be dehumanized (pls)
+ <br>discord: @drugzylla (add me :D)
+
+</details>
 
 <details>
-<summary>${\textsf{\color{#fffff}boundaries}}$</summary>
-<div align="left">
-hii small dni pls
+<summary>boundaries</summary>
+
+dni pls:
  <br>- generally bad bigoted people
  <br>- fickin/irl/otherkin haters
  <br>- endogenic/willogenic system supporters
  <br>- people that call pedophiles 'maps'
- 
- <br>- if you copy me/parts of my system in any way
- <br>including my skins, it bothers me a lot sorry y
- 
-
+ <br>- if you copy me/parts of my system in any way including my skins, it bothers me a lot
 </details>
