@@ -27,5 +27,5 @@ dni pls:
  <br>- fickin/irl/otherkin haters
  <br>- endogenic/willogenic system supporters
  <br>- people that call pedophiles 'maps'
- <br>- if you copy me/parts of my system in any way including my skins, it bothers me a lot
+ <br>- if you copy mein any way, it bothers me a lot
 </details>
