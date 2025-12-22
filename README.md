@@ -24,10 +24,8 @@ hii small dni pls
  <br>- endogenic/willogenic system supporters
  <br>- people that call pedophiles 'maps'
  
- <br>- if you copy me/parts of myself or my system in any way
- <br>it bothers me a lot sorry y
+ <br>- if you copy me/parts of my system in any way
+ <br>including my skins, it bothers me a lot sorry y
  
- really, please dont copy my skins/persona or take any inspo from ME AS WHOLE if we are friends. 
- <br>i do not want to see you trying to be me 😁😁😁
 
 </details>
