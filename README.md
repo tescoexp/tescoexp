@@ -16,8 +16,8 @@ helloo check status for fronter/name, if unsure call me tess C:
  <br>i love my friends and watching showss
  <br>i am an alternate and i like to be dehumanized (pls)
  <br>british, it/he/him and male labels
- <br>discord: @drugzylla (add me :D)
-
+ <br>add me on discord!!! im really friendly i promise
+ <br><img src="Screenshot 2025-12-22 003243.png" width="230px">
 </details>
 
 <details>
