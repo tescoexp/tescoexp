@@ -9,7 +9,7 @@
 
  
 <div align="center">
-work in progressmaybe idk
+work in progressmaybe idk....
 
 <br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>⠀
@@ -18,14 +18,14 @@ work in progressmaybe idk
 <details>
 <summary>${\textsf{\color{#fffff}boundaries}}$</summary>
 <div align="left">
-hi! strict dni:
+hii small dni pls
  <br>- generally bad bigoted people
- <br>- fickin/irl/therian haters
- <br>- endogenic/willogenic system supporters, however people that think they are endo/willo themselves are misinformed and i'll gladly educate them
+ <br>- fickin/irl/otherkin haters
+ <br>- endogenic/willogenic system supporters
  <br>- people that call pedophiles 'maps'
  
  <br>- if you copy me/parts of myself or my system in any way
- <br>it isnt charming at all, it offends me and is just weird!
+ <br>it bothers me a lot sorry y
  
  really, please dont copy my skins/persona or take any inspo from ME AS WHOLE if we are friends. 
  <br>i do not want to see you trying to be me 😁😁😁
